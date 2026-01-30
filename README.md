@@ -93,7 +93,7 @@ Deep within the heart of the cavern, they found the source of the shadow: not a 
 
 But Luna stopped him with a gentle touch of her horn. "Remember the prophecy? *When flame and light unite as one.* We don't destroy it with force. We transform it with unity."
 
-Understanding dawned in Aurelius's eyes. Together, they approached the mirror. Luna's horn began to glow with brilliant white light while Aurelius channeled his fire—not the destructive flames of battle, but the warm, life-giving fire of a hearth. Their powers intertwined, spiral of silver light and golden fire, wrapping around the mirror.
+Understanding dawned in Aurelius's eyes. Together, they approached the mirror. Luna's horn began to glow with brilliant white light while Aurelius channeled his fire—not the destructive flames of battle, but the warm, life-giving fire of a hearth. Their powers intertwined, a spiral of silver light and golden fire, wrapping around the mirror.
 
 The shadow shrieked and recoiled, but it had no power over their combined magic. The Mirror of Separation cracked, shattered, and reformed into something new: the Mirror of Unity, which reflected not separation but connection, not fear but friendship.
 
